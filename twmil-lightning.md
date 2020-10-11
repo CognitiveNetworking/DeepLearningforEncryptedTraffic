@@ -7,8 +7,8 @@ https://twimlai.com/twimlfest/sessions/show-and-tell/
 
 ## Presenter
 
-Madhusoodhana Chari S
-LinkedIn: https://in.linkedin.com/in/madhucharis
+Abdul Samadh
+https://in.linkedin.com/in/azathabdulsamadh
 
 ## Context
 
